@@ -1,0 +1,1 @@
+# Opaska-do-monitorowania-t-tna
